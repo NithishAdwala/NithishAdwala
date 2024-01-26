@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NithishAdwala
+- 👀 I’m interested in learning new things, photography
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me mail
+- 😄 Pronouns: he/him
